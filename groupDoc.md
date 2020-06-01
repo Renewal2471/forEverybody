@@ -29,8 +29,8 @@
 链接：https://pan.baidu.com/s/1lj5KKeH10ILQRzW9A49iWA 
 提取码：cco7 
 1. 世界名牌大学公开课
-链接：https://pan.baidu.com/s/1HZDIIx6sKBNV6aUhOVvxGQ 
-提取码：48g8 
+链接：https://pan.baidu.com/s/1eEx4Eze4dAxZZZw1r6hzrw
+提取码：r410 
 1. ***Regina彩妆课***
 链接：https://pan.baidu.com/s/1hIOhnvTZ9ffwJliNuMTv4Q 
 提取码：qf6o
@@ -47,8 +47,8 @@
 链接：https://pan.baidu.com/s/1qeMhMDX4WNKaOCMrCEIsIw 
 提取码：m2i8
 1. ***张怡筠亲子情商课***
-链接：https://pan.baidu.com/s/159Hd4kxE9-wOe09Huo5PwQ 
-提取码：9e3r
+链接：https://pan.baidu.com/s/1VujrvXSWPtWY6kWwYjvX-A
+提取码：V22U 
 1. ***时间管理十堂课***
 链接：https://pan.baidu.com/s/1WlGjeC2GzDNxIFgCFoGBoA 
 提取码：hqvo
@@ -108,8 +108,8 @@
 提取码：v0ua
 ## 娱乐资源
 1. 74部BBC高清纪录片种子
-链接：https://pan.baidu.com/s/1uhS2p7tcZMIlqS4iLtUXtQ 
-提取码：tase
+链接：https://pan.baidu.com/s/1OPEc4g4DIesgCwGnithxwQ
+提取码：0R9q 
 1. 斯嘉丽·约翰逊电影合集
-链接：https://pan.baidu.com/s/12R_2lWaA7IvG8F-N7I_RtQ 
-提取码：982n 
+链接：https://pan.baidu.com/s/1zNNU3i0oM9AfAeve8KdS_w
+提取码：P8k0 
